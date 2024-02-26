@@ -1,1 +1,1 @@
-# nogiftmanifesto
+# https://nogiftmanifesto.org
